@@ -12,3 +12,7 @@ Tugas/ Jawaban
 dikumpulkan tanggal : Maksimal Sesuai jadwal ujian di web DAAK  
 
 Dosen Pengampu : Muhammad Koprawi, S.Kom., M.Eng, - Anggit Ferdita Nugraha, S.T., M.Eng
+
+NAMA MAHASISWA: Raihan Rinto Andiansyah
+
+NIM MAHASISWA: 20.83.0572
